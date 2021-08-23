@@ -1,3 +1,3 @@
 # practice
-Anli is a beautiful girl
+Anli is a beautiful and cute girl
 Cuimao is a handsome boy
